@@ -1,2 +1,2 @@
-# [Lsnet Official website](http://http://www.lsnet.io/)
+# [Lsnet Official website](http://www.lsnet.io/)
 
